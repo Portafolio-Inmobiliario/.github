@@ -3,6 +3,24 @@
 
 https://portafolio.cr
 
+
+## Who is Portafolio Inmobiliario?
+
+We are one of the leading developers of residential, retail, offices and mixed-use projects of the Central American region. Portafolio Inmobiliario was founded in 1998 and consolidated in 2003 as a Real Estate and Development company.
+
+We currently have +600 tenants and have close to USD$550MM in assets under our operation. The company focuses on developing projects that are not only profitable, but also have a real impact on improving people's quality of life by creating spaces that generate memorable experiences.
+
+
+## Our purpose is:
+
+To transform the Cities of the Future. Creating spaces that evoke pride and a sense of belonging. Each of our projects has been designed, built and managed to generate memorable experiences.
+
+
+
+--------------------------------------------------------------------------
+
+
+
 ## ¿Quién es Portafolio Inmobiliario?
 
 Somos uno de los principales desarrolladores de proyectos habitacionales, centros comerciales, oficinas y uso mixto de la región centroamericana. Portafolio Inmobiliario fue fundado en 1998 y se consolidó en el 2003 como una empresa de Real Estate y Desarrollo Inmobiliario.
