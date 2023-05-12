@@ -16,7 +16,9 @@ We currently have +600 tenants and have close to USD$550MM in assets under our o
 
 To transform the Cities of the Future. Creating spaces that evoke pride and a sense of belonging. Each of our projects has been designed, built and managed to generate memorable experiences.
 
-
+ <a href="https://www.portafolio.cr/">
+    Portafolioinmobiliario.cr
+  </a>
 
 --------------------------------------------------------------------------
 
