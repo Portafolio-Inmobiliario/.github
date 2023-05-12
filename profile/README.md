@@ -32,3 +32,7 @@ Actualmente tenemos +600 inquilinos y contamos con cerca de USD$550MM en activos
 ## Nuestro propósito es:
 
 Transformar las Ciudades del Futuro. Creando espacios que provoquen orgullo y pertenencia. Cada uno de nuestros proyectos ha sido diseñado, construido y es administrado para generar experiencias memorables.
+
+ <a href="https://www.portafolio.cr/">
+    Portafolioinmobiliario.cr
+  </a>
